@@ -1,4 +1,4 @@
-╭─「 RAHUL 」╮
+╭─「RAHUL」╮
 │ 👨‍💻 Developer: KING RAHUL 
 │ 👑 Mr RAHUL
 │
